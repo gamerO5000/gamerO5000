@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @gamerO5000
-- 👀 I’m interested in ...hacking
+- 👀 I’m interested in ...white hat hacking
 - 🌱 I’m currently learning ...coding
 - 💞️ I’m looking to collaborate on ...coding
 - 📫 How to reach me ...dm me on discord "gamero5.o
